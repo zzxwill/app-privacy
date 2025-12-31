@@ -1,6 +1,6 @@
 # Privacy Policy for KidSoothe
 
-**Last updated: December 31, 2024**
+**Last updated: December 31, 2025**
 
 ## Overview
 
